@@ -11,7 +11,7 @@
 > including the giants: Amazon, Facebook, Google, and Microsoft.
 >
 > *Best of luck to you!*
-
+ 
 <details>
 <summary>Translations:</summary>
 
